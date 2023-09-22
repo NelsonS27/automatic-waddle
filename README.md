@@ -1,2 +1,0 @@
-# automatic-waddle
-para ella
